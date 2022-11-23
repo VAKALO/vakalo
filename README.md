@@ -21,6 +21,6 @@ investimentos e programação além de python
 - 😄 Pronouns: ...
 ELE/DELE
 - ⚡ Fun fact: ...
---> humorista e supereficiente com aquilo que sei, e oque eu não sei, eu procuro saber, sempre consigo achar mais de uma 
+--> humorista e muito eficiente com aquilo que sei, e oque eu não sei, eu procuro saber, sempre consigo achar mais de uma 
 solução ou opção para qualquer pergunta e me parece que sou o unico que entende minha ironia e meu ponto de vista
 
